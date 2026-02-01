@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Raushan Kumar
-**A passionate Software Developer || Database Administrator || Kafka Admin from India**
+**A passionate Software Developer || Database Administrator || Admin from India**
 
 Email Me 👉 ✉️ **rudraraushan000@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
