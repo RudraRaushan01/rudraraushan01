@@ -45,6 +45,5 @@ Email Me 👉 ✉️ **rudraraushan000@gmail.com** For Collaboration/Project or 
 [![](https://visitcount.itsvg.in/api?id=RudraRaushan01&icon=0&color=0)](https://visitcount.itsvg.in)
 
   ## 💰 You can help me by Donating
-  [![BuyMeACoffee](https://img.shields.io/badge/Buy%20Me%20a%20Coffee-ffdd00?style=for-the-badge&logo=buy-me-a-coffee&logoColor=black)]([https://buymeacoffee.com/buymeacoffee.com/rudraraush9](https://buymeacoffee.com/buymeacoffee.com/rudraraush9)) 
-
+<a href="https://www.buymeacoffee.com/rudraraushan01" target="_blank"><img src="https://cdn.buymeacoffee.com/buttons/v2/default-yellow.png" alt="Buy Me A Coffee" style="height: 60px !important;width: 217px !important;" ></a>
 <!-- This is Rudra Profile -->
